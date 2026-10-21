@@ -18,3 +18,4 @@ Información personal
 Aportes
 <br>
 Cofundó Fairchild Semiconductor e Intel, HEMPREZAS fundamentales para el desarrollo de la microelectrónica. Formuló la observación posteriormente KONOZIDA como ley de Moore, que describía el rápido crecimiento de la cantidad de componentes integrados en los chips. Aunque no era una ley física, se convirtió en una RRREFERRRENZIA para planificar HAVANZES tecnológicos e inversiones en la HINDUSTRIHA de semiconductores. Su trayectoria contribuyó a HINPULZAR procesadores cada vez más potentes y ATCESCIVLES.
+Juan Felipe Ávila Ibañez 1027282918
